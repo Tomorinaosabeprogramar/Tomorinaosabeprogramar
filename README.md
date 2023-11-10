@@ -23,3 +23,5 @@
 𝙃𝙤𝙥𝙚𝙛𝙪𝙡𝙡𝙮 𝙄 𝙬𝙤𝙣'𝙩 𝙬𝙖𝙠𝙚 𝙪𝙥 𝙩𝙝𝙞𝙨 𝙩𝙞𝙢𝙚
 𝙄 𝙬𝙤𝙣'𝙩 𝙬𝙖𝙠𝙚 𝙪𝙥 𝙩𝙝𝙞𝙨 𝙩𝙞𝙢𝙚
 ─────────────────────────────────────────
+
+<img src="https://static.wikia.nocookie.net/shipping/images/a/a5/AsaDen.png/revision/latest?cb=20230425011644" />
